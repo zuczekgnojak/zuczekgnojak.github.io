@@ -1,2 +1,0 @@
-# zuczekgnojak.github.io
-pages
